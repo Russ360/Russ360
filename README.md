@@ -1,6 +1,4 @@
-![neonleavesdreamruss](https://user-images.githubusercontent.com/85079092/152467320-746b123d-0775-4dfa-a814-dca1c29102ad.png)
-
-
+![universe_work_dream](https://user-images.githubusercontent.com/85079092/152496095-58149aa0-98bc-4321-aba9-8bb47967593e.jpg)
 
 ### **Welcome** to my profile! 
 
