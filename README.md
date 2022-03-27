@@ -1,5 +1,5 @@
 <p align="center"> 
-  Welcome to my profile! This is my favorite of the many random places I keep code. Feel free to have a look around, and I hope you have an excellent day.
+  Welcome to my profile! This is one of the places I keep code. Feel free to have a look around, and I hope you have an excellent day.
 </p>
 
 ![russ360](https://user-images.githubusercontent.com/85079092/155898342-6174b7ed-1a3e-4740-8f31-52554ebb259d.png)
